@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-![alt text](https://drive.google.com/file/d/1I0etoJXDYv6WVnMd_KDs1BykeIFYQdXr/view?usp=sharing)
+![alt text](https://imgur.com/rDTmn8s)
 
