@@ -7,7 +7,6 @@
 </div>
 
 <div align="center">
-![image](https://imgur.com/rDTmn8s.png)
 
 ![alt-text](https://media.giphy.com/media/Jrep9ZLnjDcVsHlGEY/giphy.gif)
 
