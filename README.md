@@ -1,5 +1,5 @@
 <h1 align="center"> Nick Butler </h1>
-<h2 align="center">Junior Software Developer</h2>
+<h2 align="center">Delivery Consultant at ECS</h2>
 
 <div align="center">
 
